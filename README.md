@@ -1,0 +1,1 @@
+# gewinn--und-Erl-sfunktion_kravtchenko
